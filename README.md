@@ -88,6 +88,8 @@ This dashboard provides a comprehensive overview of furniture sales performance,
 
 ---
 
+**Taiwo Sanusi**  
+Data Analyst | 📧 Sanusitaiwo9@gmail.com | 🌐 [www.linkedin.com/in/taiwo-sanusi-49b08a1b0]
 
 
 
